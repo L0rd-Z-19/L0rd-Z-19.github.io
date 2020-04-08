@@ -1,1 +1,0 @@
-# L0rd-Z-19.github.io
